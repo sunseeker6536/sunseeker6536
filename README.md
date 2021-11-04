@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @sunseeker6536
+- 👀 I’m interested in modding
+- 🌱 I’m currently learning modding...
+- 💞️ I’m looking to collaborate on small projects
+- 📫 How to reach me: on discord sunseeker#6536
